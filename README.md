@@ -1,1 +1,2 @@
-# blurswashere-bot1
+# erensibot
+EQWWQSAOFJFJAPJGOPAKOSPPO ERENSİ KARDEŞİM UÇAK GELİYOR
